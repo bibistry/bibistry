@@ -1,7 +1,7 @@
 <p align="center">
-  <img src="https://file.garden/ap9RTE5ZVgenw9r0/aw.png"
+  <img src="https://static.wikia.nocookie.net/mspaintadventures/images/e/ef/Gamzeeshopdance.gif/revision/latest?cb=20200316004306"
 </p>
   
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=bibib0nes&color=86b34d&label=beans&style=plastic&base=278"
+ <img src="https://komarev.com/ghpvc/?username=bibib0nes&color=663c52&label=douchebags&style=plastic&base=278"
    </p>
